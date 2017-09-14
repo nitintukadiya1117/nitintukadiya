@@ -1,0 +1,2 @@
+# nitintukadiya
+my Twitter id   https://twitter.com/nitralsingh?s=08  my facebook id https://www.facebook.com/tukdiya.nitin  my instagram id    https://www.instagram.com/tukdiyanitin/  my linkedin id    https://www.linkedin.com/in/nitin-tukadiya-a0b94414a  my you tube channel id  subscribe known https://www.youtube.com/channel/UC3DS_-c-D6ewPJOAPB41A4A   my tumblr id follow me  https://nitintukadiya.tumblr.com/  n tech my Twitter id    please like,follows,share,subscribe
